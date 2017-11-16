@@ -1,4 +1,4 @@
-#Flash
+#Flash Reverso
 
 Se trata de uno de los personajes más emblemáticos de DC Comics. Dada su buena aceptación, obtuvo su propia revista en 1940. Tres años después, Columbia Pictures estrenó la primera adaptación para la televisión del personaje, a la cual le siguió la serie Batman y Robin, en 1949. A mediados de la década de 1960, se lanzó otra serie titulada Batman, que hizo uso de un concepto más «camp» que terminó apartándolo de su tono sombrío con el que originalmente fue concebido. Más adelante, los escritores Dennis O'Neil, Neal Adams y Frank Miller produjeron nuevo material escrito sobre el universo de Batman entre los años 1970 y 1980, retomando el diseño y elementos originales de la franquicia. Se considera que película homónima de Tim Burton, estrenada en 1989, tuvo un rol importante en la popularidad contemporánea del hombre murciélago, al igual que la serie de filmes iniciada con Batman Begins en 2005, dirigida por Christopher Nolan.9​ Además de las anteriores producciones, existen varias otras más en las que el personaje y sus elementos han sido incorporados.
 
